@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @Ashiro-hee
+- 👋 Hi, I’m Ashiro, call me Ashi
 - 👀 I’m interested in instruments 
 - 🌱 I’m currently learning college 
 - 💞️ I’m single soft andro
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 🤍 I love cats and dogs
 - ⚡ Fun fact: Palabiro and sweet
 
 <!---
